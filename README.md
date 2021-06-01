@@ -81,7 +81,7 @@ for.<br />
         I am a **Dream** Stan, and this is my manifesto.  You may stop this individual,<br />
 but you can't stop us all... after all, we're all alike.<br />
 <br />
-                               +++**Dream Stans**+++
+                               +++Dream Stans+++
 ___________________________________________________
     </p>
 </body>
